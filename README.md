@@ -1,0 +1,18 @@
+**Movie Ticket Booking Website**
+
+![image](https://github.com/user-attachments/assets/ebf88653-f34a-490d-9bf1-0807bfc5c4a3)
+![image](https://github.com/user-attachments/assets/0c231eb3-38da-488b-b7eb-418b66034dd5)
+![image](https://github.com/user-attachments/assets/48b43048-2df0-4d53-9a94-92202935e62f)
+![image](https://github.com/user-attachments/assets/0eb3ad8a-338a-409c-8129-147a6a9207d6)
+![image](https://github.com/user-attachments/assets/4ddd8e28-0337-4d7b-a0ec-80802dd6659e)
+![image](https://github.com/user-attachments/assets/61ac0983-e81c-4a1f-af0a-70f335107682)
+![image](https://github.com/user-attachments/assets/0e2160c9-a09c-4489-9a18-6c325550d196)
+![image](https://github.com/user-attachments/assets/d4ef3b0a-33e3-4e26-9f91-a8913a0032c0)
+![image](https://github.com/user-attachments/assets/9e40510b-a526-4929-a54d-d2985c544242)
+![image](https://github.com/user-attachments/assets/0bd6d37f-3c1d-408e-8990-13b108a6255d)
+![image](https://github.com/user-attachments/assets/c376aa0d-c55e-40a7-9e22-d8c196ffb22e)
+![image](https://github.com/user-attachments/assets/8249f831-8993-47cf-a17a-a5c5ec5b0760)
+![image](https://github.com/user-attachments/assets/55acfb3c-2563-4eac-96be-6cd9fe88f653)
+![image](https://github.com/user-attachments/assets/b7224dfd-6f19-4bf7-ac1e-dc81ce6ecf32)
+![image](https://github.com/user-attachments/assets/d9792a22-2a8d-427c-a787-1f2a6f284ce6)
+![image](https://github.com/user-attachments/assets/c9e0d9ff-9cec-43d2-9bae-87e9718a98c8)
